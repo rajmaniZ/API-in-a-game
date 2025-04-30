@@ -65,4 +65,4 @@ This project is licensed under the [Creative Commons Attribution-ShareAlike 4.0]
 
 ## ❤️ Author
 
-Made with love by **Supriya** 💫
+Made with love by **Rajmani** 💫
